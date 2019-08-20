@@ -1,1 +1,1 @@
-Okay
+Okay²
